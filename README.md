@@ -1,4 +1,4 @@
-### https://tse1.mm.bing.net/th?id=OGC.2fe4cb05f845985211dde63628d20fcf&pid=Api&rurl=https%3a%2f%2fmedia.giphy.com%2fmedia%2f12qbiHSSnvvdhm%2f200.gif&ehk=OsD5SycDajyTpHXon2Wyd300MJ13e8IhtaQRW8N%2b5WU%3d 
+### 🎐
 
 <!--
 **elifsz/elifsz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
