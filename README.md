@@ -1,3 +1,5 @@
+Blog: https://elif-from-zero.medium.com/
+
 ###
 
                                                      ___
